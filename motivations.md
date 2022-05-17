@@ -1,0 +1,1 @@
+I ran a successful restaurant for a long time and loved it, but after the pandemic, it was just exhausting and no longer innovative for me. I like to build things with my hands and a friend who graduated from Turing sold me on the idea of trying my hand at programming because it is building. Just the little bit i've learned already has got me very excited to learn more.
